@@ -1,1 +1,0 @@
-# stajda_ogrendiklerim
